@@ -1,7 +1,7 @@
 ### Hi Welcome, i'm JONGWON HWANG 👋
 
 🐱 About Me
---
+---
 - 정보통신공학과 학사 학위 취득
 
 
