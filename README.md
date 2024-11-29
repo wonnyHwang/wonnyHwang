@@ -1,4 +1,4 @@
-### Hi Welcome, i'm JONGWON HWANG 👋
+### Hi Welcome, I'm JONGWON HWANG 👋
 
 🐱 About Me
 ---
