@@ -38,3 +38,4 @@
 - 데이터분석준전문가(ADsP)
 - SQL 개발자(SQLD)
 - 컴퓨터활용능력 1급
+- ITQ OA Master
