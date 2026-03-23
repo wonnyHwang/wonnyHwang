@@ -18,9 +18,10 @@
 
 
 
-🏢 Career
+🏢 Career/Experience
 ---
 - KT AIVLE School 5기 DX컨설턴트 트랙 수료 (2024.2.20 ~ 2024.08.07)
+- MOBIUS BOOTCAMP 1기 (2025.09.22 ~ 2026.03.27)
 
 
 
